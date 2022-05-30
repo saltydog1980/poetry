@@ -2,7 +2,7 @@
 
 ### Verse 1
 
-The free bird leaps
+You are a pendejo!!
 on the back of the wind
 and floats downstream
 till the current ends
